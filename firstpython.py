@@ -1,3 +1,3 @@
-not very clear.
+Its not very clear.
 
-will still try to learn.
+Nevertheless I will still try to learn.
